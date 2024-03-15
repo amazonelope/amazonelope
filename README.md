@@ -16,3 +16,14 @@ amazonelope/amazonelope is a ✨ special ✨ repository because its `README.md` 
  👀       2. DEEP DOWN INSIDE, MONTECRYPTO AND FRANKLIN NEED TO BELIEVE IN IT AND NOT JUST SEE IT AS AN AMATEUR MONEY SHILL
 👀         3. WE NEED TO RELEASE IT IN CONJUNCTION WITH PEOPLE STAKING THEIR REGULAR PIPEBLOCKS AND IN CONJUNCTION WITH THE UPCOMING BULL MARKET SO ASAP!
 👀       -----WHAT AM I DOING NOW? IM GRADUALLY PREPARING TO RELEASE THE PROJECT ASAP UNDER THE SITE "INSCRIBE3 AND ALSO SATSx. I WANT IT ALL TO BE FLUID &PROFESSIONAL HELP ME!
+
+
+https://github.com/amazonelope/amazonelope/assets/72674242/8adf16a6-0708-4775-b96e-d867ace424fd
+
+![image_6483441](https://github.com/amazonelope/amazonelope/assets/72674242/8653104b-2c56-47dd-a9a0-152b8322dcff)
+<img width="691" alt="explainer1" src="https://github.com/amazonelope/amazonelope/assets/72674242/f442cdc3-acae-425f-ae32-9872a5306627">
+<img width="421" alt="explainer2" src="https://github.com/amazonelope/amazonelope/assets/72674242/02dcb3a6-dc76-44fd-99ee-ac66ba560c98">
+<img width="118" alt="pipblock1" src="https://github.com/amazonelope/amazonelope/assets/72674242/2fe5b5ea-9162-47c7-ac8b-d2a497bb5287">
+![NEW1111](https://github.com/amazonelope/amazonelope/assets/72674242/62823b9d-c57d-4dbc-89cc-064960d668d5)
+
+<img width="320" alt="firstpipe809608" src="https://github.com/amazonelope/amazonelope/assets/72674242/fffa7d63-31cf-4bed-bf4b-c58bdd21198c">
