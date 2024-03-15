@@ -17,6 +17,7 @@ amazonelope/amazonelope is a ✨ special ✨ repository because its `README.md` 
 👀         3. WE NEED TO RELEASE IT IN CONJUNCTION WITH PEOPLE STAKING THEIR REGULAR PIPEBLOCKS AND IN CONJUNCTION WITH THE UPCOMING BULL MARKET SO ASAP!
 👀       -----WHAT AM I DOING NOW? IM GRADUALLY PREPARING TO RELEASE THE PROJECT ASAP UNDER THE SITE "INSCRIBE3 AND ALSO SATSx. I WANT IT ALL TO BE FLUID &PROFESSIONAL HELP ME!
 
+![NEW2](https://github.com/amazonelope/amazonelope/assets/72674242/320f6636-4310-4ee7-b708-d13a99416166)
 
 https://github.com/amazonelope/amazonelope/assets/72674242/8adf16a6-0708-4775-b96e-d867ace424fd
 
@@ -27,3 +28,5 @@ https://github.com/amazonelope/amazonelope/assets/72674242/8adf16a6-0708-4775-b9
 ![NEW1111](https://github.com/amazonelope/amazonelope/assets/72674242/62823b9d-c57d-4dbc-89cc-064960d668d5)
 
 <img width="320" alt="firstpipe809608" src="https://github.com/amazonelope/amazonelope/assets/72674242/fffa7d63-31cf-4bed-bf4b-c58bdd21198c">
+https://github.com/amazonelope/amazonelope/assets/72674242/15e4c4e8-8a4b-41da-a54f-e496cbbac4f5
+
