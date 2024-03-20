@@ -8,7 +8,7 @@ amazonelope/amazonelope is a ✨ special ✨ repository because its `README.md` 
 👀  NOTE that this IS A WORTHY PROJECT
 👀  NOTE THAT I AM CREATING A HIGH FLOOR PRICE FOR THE TREASURED PIPEBLOCKS
  👀 --THREE things this proect does.
-👀   1. gaming and eremonies in the metaverse
+👀   1. gaming and ceremonies in the metaverse
 👀    2. uses staking and lottery for both entry and also prizes
  👀    3. will increase the use of pipeblock protocal!
 👀  -- THREE THINGS  FOR SUCCESS.
