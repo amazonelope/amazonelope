@@ -14,4 +14,4 @@ amazonelope/amazonelope is a ✨ special ✨ repository because its `README.md` 
 👀  -- THREE THINGS  FOR SUCCESS.
 👀       1. ADVERTISE! 
  👀       2. BELIEVE IN IT
-👀         3. uses origin treasury pipeblocks and my own piperat 4145 treasury pipebloks, five opies of each, 100 origin and 50 for my own treasury. gets u clout and status in using the virtual world.
+👀         3. uses origin treasury pipeblocks and my own piperat 4145 treasury pipebloks, five copies of each, 100 origin and 50 for my own treasury. gets u clout and status in using the virtual world.
